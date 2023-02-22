@@ -11,7 +11,7 @@ former bartender, wasted coder.
 *   ✉️  You can contact me at [armanouw#6295](mailto:armanouw#6295)
 *   🚀  I'm currently working on [terminator](http://locallhost.com/)
 *   🧠  I'm learning cooking
-*   🤝  I'm open to collaborating on your mother\`s project👅
+*   🤝  I'm open to collaborating on your music projects👅
 *   ⚡  Flex
 
 ### Skills
