@@ -9,7 +9,7 @@ former bartender, wasted coder.
 *   🌍  I'm based in Bushehr
 *   🖥️  See my portfolio at [here or there](http://www.linkedin.com/in/armanouw)
 *   ✉️  You can contact me at [armanouw#6295](mailto:armanouw#6295)
-*   🚀  I'm currently working on [terminator](http://locallhost.com/)
+*   🚀  I'm currently working on [DataJournalism](http://locallhost.com/)
 *   🧠  I'm learning cooking
 *   🤝  I'm open to collaborating on your music projects👅
 *   ⚡  Flex
