@@ -6,7 +6,7 @@ Code Surgeon🩺
 
 former bartender, wasted coder.
 
-*   🌍  I'm based in Tehran
+*   🌍  I'm based in Bushehr
 *   🖥️  See my portfolio at [here or there](http://www.linkedin.com/in/armanouw)
 *   ✉️  You can contact me at [armanouw#6295](mailto:armanouw#6295)
 *   🚀  I'm currently working on [terminator](http://locallhost.com/)
